@@ -17,4 +17,4 @@ que molda nossas escolhas. (Lord Foss)
 
 
 esta pista esta escondida.. decifre com a piada que eu mais falo...
-seead://hhh.xpotlqtcp.nzx/qtwp/4f5xt2velupj1fp/Vpyyj.kta/qtwp
+seead://hhh.xpotlqtcp.nzx/qtwp/gv2jqm2mtq4gi5k/Vpyyj.kta/qtwp
